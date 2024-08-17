@@ -1,4 +1,4 @@
-# codsoftuiux
+# CODSOFTUIUX
 🌟 Exciting Announcement: UI/UX Internship Tasks 🎉
 
 
